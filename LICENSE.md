@@ -1,4 +1,4 @@
-#  
+#  rare Script for minecraft is the best minecraft Script, featuring silent aim and fly. Safe and powerful for all your needs.
 
 
 
